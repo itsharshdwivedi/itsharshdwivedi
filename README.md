@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @itsharshdwivedi
+- 👀 I’m interested in singing, drawing, creating stories, directing, making videos.
+- 🌱 I’m currently learning how to direct TV Shows, movies, animation, coding.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: Instagram:- @itsharshdwivedi
